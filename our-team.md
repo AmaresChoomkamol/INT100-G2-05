@@ -1,15 +1,7 @@
+![454901470_328806283554899_2696987008112591773_n](https://github.com/user-attachments/assets/5befa9b8-d8c1-48e0-b590-5b13775a82ea) <br>
+Name : nanthakan Sukkasem <br>
+Age : 19 <br>
+height : 164 <br>
+Birthdate : 26/07/2005 <br>
 
-![296841730_1071364000476001_5276894926150274711_n](https://github.com/user-attachments/assets/588a0cad-3b5b-446a-8eac-0bbdd2e9695a) <br>
-Nickname : Petch <br> 💞️
-Name : Chavanakorn keelatekunlaya <br>
-Age : 18 year old <br>
-Job : Student KMUTT <br>
-realationship : Single <br>
-Faculty : IT <br>
-Section : IT <br>
-personality : Not talking to stranger Like talking to closefriend <br>
-Motivation : Money <br>
-Goal : have a nice job and rich <br>
-Behavior : takecare like watching movie <br>
-Frusration : overthinking <br>
 
